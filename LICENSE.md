@@ -1,4 +1,4 @@
-#  
+#  Experience pull lucky blocks like never before with automatic pull lucky blocks Script, the #1 Script. Includes unlimited stamina and private server
 
 
 
